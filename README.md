@@ -64,7 +64,7 @@ Don't feel like you have to know everything today. Start by downloading a demo a
 So, are you ready to see what the world of forex has to offer? Just remember: stay humble, keep learning, and never risk the rent money!
 <h2>Related HashTags</h2>
 #ForexManagement #HighReturnForex #InvestmentStrategy #ForexTrading #WealthManagement #CurrencyTrading #ForexInvestments #FinancialGrowth #FXManagement #ForexExpert #HighYieldInvesting #PassiveIncomeForex #SmartInvesting #ForexPortfolio #AssetManagement
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
